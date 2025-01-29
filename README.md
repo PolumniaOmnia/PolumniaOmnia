@@ -14,7 +14,7 @@
 
 <p align="center"> 𝘽𝙔𝙄; I don't like talking abt my personal life, I do grammatical errors a lot + curses a lot + get typos a lot, I sometimes can't control my attitude so i might come as rude, if I make you uncomfy don't be shy to tell me about it. 
 
-<p align="center"> 𝙖𝙣𝙙 𝙖𝙡𝙨𝙤; DO NOT TAKE INSPO OR COPY MY SKINS, except if I give you permission. friend requests are off so just whisp if you want to be in my friends list. 
+<p align="center"> 𝙖𝙣𝙙 𝙖𝙡𝙨𝙤; DO NOT TAKE INSPO OR COPY MY SKINS, except if I give you permission. ✧ friend requests are off so just tell me or whisp if you want to be in my friends list. 
 <p align="center">  ︶ ⏝ ︶ ✦ ︶ ⏝ ︶
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=polumniaomnia&label=profile%20views&color=bbbcec&style=flat" alt="polumniaomnia" /> </p>
