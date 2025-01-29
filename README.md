@@ -9,7 +9,7 @@
 ![Image](https://github.com/user-attachments/assets/42488f82-9b03-4c44-88e0-f0777c9a7f22)
 <p align="center"> this person also dni. 
 
-  ![Image](https://github.com/user-attachments/assets/73e8b280-fb16-4ff9-95e1-34e00ba14133)  
+![Image](https://github.com/user-attachments/assets/8fc4b936-f4c0-4549-83ae-ed2232c06084)
 
 <p align="center"> 𝘽𝙔𝙄; I don't like talking abt my personal life, I do grammatical errors a lot + curses a lot + get typos a lot, I sometimes can't control my attitude so i might come as rude, if I make you uncomfy don't be shy to tell me about it. 
 
