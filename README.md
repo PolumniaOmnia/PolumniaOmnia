@@ -1,5 +1,4 @@
-![Image](https://github.com/user-attachments/assets/18200cd8-cdd9-4a00-97c6-93b739a4edf3)
-
+![Image](https://github.com/user-attachments/assets/d9392009-234c-4dc2-8b8b-6b677392abcf)
 <p align="center"> quinn, she/her, minor, gmt+8
 <p align="center">  ︶ ⏝ ︶ ✦ ︶ ⏝ ︶
 
