@@ -4,7 +4,7 @@
 
 <p align="center"> 𝙄𝙉𝙏; mona, scara, kazuha, sunday, lyney, fremi, fatui harbingers ✧ int with these skins plss!! 
 
-<p align="center"> 𝘿𝙉𝙄; proshippers, racist, doesn't respect boundaries, you have no common sense, you hate mona/scara/kazuha, heterophobic and homophobic ppl. 
+<p align="center"> 𝘿𝙉𝙄; proshippers, racist, doesn't respect boundaries, you hate mona/scara/kazuha, heterophobic and homophobic ppl. 
 
 ![Image](https://github.com/user-attachments/assets/42488f82-9b03-4c44-88e0-f0777c9a7f22)
 <p align="center"> this person also dni. 
