@@ -2,7 +2,7 @@
 <p align="center"> quinn, she/her, minor, gmt+8
 <p align="center">  ──── ✦ ────
 
-<p align="center"> 𝙄𝙉𝙏; mona, scara, kazuha, sunday, lyney, fremi, fatui harbingers ✧ int with these skins plss!! 
+<p align="center"> 𝙄𝙉𝙏; mona, scara, kazuha, sunday, lyney, fremi, fatui harbingers, characters from wuwa ✧ int with these skins plss!! 
 
 <p align="center"> 𝘿𝙉𝙄; proshippers, racist, doesn't respect boundaries, you hate mona/scara/kazuha, heterophobic and homophobic ppl. 
 
