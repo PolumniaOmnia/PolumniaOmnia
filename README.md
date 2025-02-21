@@ -1,6 +1,6 @@
 ![Image](https://github.com/user-attachments/assets/d9392009-234c-4dc2-8b8b-6b677392abcf)
 <p align="center"> quinn, she/her, minor, gmt+8
-<p align="center">  ─ ⋅ ⋅ ⋅ ──── ✦ ─── ⋅ ⋅ ⋅ ──
+<p align="center">  ─ ⋅ ──── ✦ ─── ⋅ ──
 
 <p align="center"> 𝙄𝙉𝙏; mona, scara, kazuha, sunday, lyney, fremi, fatui harbingers, characters from wuwa ✧ int with these skins plss!! 
 
@@ -17,7 +17,7 @@
 
 <p align="center"> current scara count; 39
 
-<p align="center">  ─ ⋅ ⋅ ⋅ ──── ✦ ─── ⋅ ⋅ ⋅ ──
+<p align="center">  ─ ⋅ ──── ✦ ─── ⋅ ──
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=polumniaomnia&label=profile%20views&color=bbbcec&style=flat" alt="polumniaomnia" /> </p>
 
