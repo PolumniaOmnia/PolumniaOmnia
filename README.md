@@ -19,7 +19,7 @@
 
 <p align="center">  ─ ⋅ ──── ✦ ─── ⋅ ──
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=polumniaomnia&label=profile%20views&color=97836f&style=flat" alt="polumniaomnia" /> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=polumniaomnia&label=profile%20views&color=4d4e6e&style=flat" alt="polumniaomnia" /> </p>
 
 <!--
 **PolumniaOmnia/PolumniaOmnia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
