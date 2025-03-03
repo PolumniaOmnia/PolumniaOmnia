@@ -19,10 +19,10 @@
 
 <p align="center">  ─ ⋅ ──── ✦ ─── ⋅ ──
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=polumniaomnia&label=profile%20views&color=5a6192&style=flat" alt="polumniaomnia" /> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=polumniaomnia&label=✧%20&color=5a6192&style=flat" alt="polumniaomnia" /> </p>
 
 <!--
-**PolumniaOmnia/PolumniaOmnia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**PolumniaOmniaprofiaOmnia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
