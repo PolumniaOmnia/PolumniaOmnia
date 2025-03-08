@@ -15,7 +15,7 @@
 
 <p align="center"> 𝙖𝙣𝙙 𝙖𝙡𝙨𝙤; DO NOT TAKE INSPO OR COPY MY SKINS, except if I give you permission. ✧ friend requests are off so just tell me or whisp if you want to be in my friends list. 
 
-<p align="center"> current scara count; 40
+<p align="center"> current scara count; 41
 
 <p align="center">  ─ ⋅ ──── ✦ ─── ⋅ ──
 
