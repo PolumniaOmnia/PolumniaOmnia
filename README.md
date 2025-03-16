@@ -15,7 +15,6 @@
 
 <p align="center"> 𝙖𝙣𝙙 𝙖𝙡𝙨𝙤; DO NOT TAKE INSPO OR COPY MY SKINS, except if I give you permission. ✧ I do not accept sudden friend reqs so at least interact first. 
 
-<p align="center"> current scara count; 41
 
 <p align="center">  ─ ⋅ ──── ✦ ─── ⋅ ──
 
