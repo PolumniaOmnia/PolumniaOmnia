@@ -6,7 +6,7 @@
 
 <p align="center"
 
-<p align="center"> hi, do not copy my ponies pls
+<p align="center"> <3
 
 
 <!--
