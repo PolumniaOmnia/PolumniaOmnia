@@ -5,18 +5,22 @@
 <p align="center"
 
 
+![](https://komarev.com/ghpvc/?username=PolumniaOmnia&style=plastic&color=5a6192&label=✦&abbreviated=true) ⠀⠀⠀ᚐ𓈒 ⠀⠀⑅  ⠀⠀⠀ ˚₊ৎ୭ ̣̣̣⠀⠀ ۫˙
 
-<!--
-**PolumniaOmniaprofiaOmnia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ 
+[![ezgif-com-crop.gif](https://i.postimg.cc/wTgmDpdW/ezgif-com-crop.gif)](https://postimg.cc/HjvnCFn5) [![ezgif-244d41b25328684e.gif](https://i.postimg.cc/SRBq7qn6/ezgif-244d41b25328684e.gif)](https://postimg.cc/1VrLskcX) [![ezgif-2561a041f8844352.gif](https://i.postimg.cc/qgHV6LFP/ezgif-2561a041f8844352.gif)](https://postimg.cc/dZ6Sz8w6)
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ semi ia
+
+
+
+
+
+
+
+
+
+
+
+
