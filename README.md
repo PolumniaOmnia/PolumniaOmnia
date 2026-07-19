@@ -6,11 +6,7 @@
 <p align="center"
 
 
-![](https://komarev.com/ghpvc/?username=PolumniaOmnia&style=plastic&color=5a6192&label=✦&abbreviated=true) ⠀⠀⠀ᚐ𓈒 ⠀⠀⑅  ⠀⠀⠀ ˚₊ৎ୭ ̣̣̣⠀⠀ ۫˙
-
-
-[![ezgif-com-crop.gif](https://i.postimg.cc/wTgmDpdW/ezgif-com-crop.gif)](https://postimg.cc/HjvnCFn5) [![ezgif-244d41b25328684e.gif](https://i.postimg.cc/SRBq7qn6/ezgif-244d41b25328684e.gif)](https://postimg.cc/1VrLskcX) [![ezgif-2561a041f8844352.gif](https://i.postimg.cc/qgHV6LFP/ezgif-2561a041f8844352.gif)](https://postimg.cc/dZ6Sz8w6)
-
+ ⠀⠀⠀ᚐ𓈒 ⠀⠀⑅  ⠀⠀⠀ ˚₊ৎ୭ ̣̣̣⠀⠀ ۫˙
 
 
  
